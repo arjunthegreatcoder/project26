@@ -1,0 +1,1 @@
+take the pizzaBase and put pizzaSauce after that put cheese the add chickenTikka and onions and heat it for 15 min.
